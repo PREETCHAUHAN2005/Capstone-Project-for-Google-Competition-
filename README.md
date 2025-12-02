@@ -1,1 +1,0 @@
-# Capstone-Project-for-Google-Competition-
